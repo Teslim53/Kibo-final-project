@@ -1,0 +1,1 @@
+#### Macy's is an American chain of high-end department stores founded in 1858 by Rowland Hussey Macy. It became a division of the Cincinnati-based Federated Department Stores in 1994, through which it is affiliated with the Bloomingdale's department store chain; the holding company was renamed Macy's, Inc. in 2007.
